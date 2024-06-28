@@ -7,12 +7,6 @@ I hold a Bachelor's and Master's degree in Accountancy from Utah Valley Universi
 Since 2017, alongside my time at Eide Bailly and after, I have worked for Hall Labs creating drawings as a patent illustrator to be used in patent applications. I collaborate with patent attorneys and engineers to produce complex drawings to secure IP rights.
 
 Continuously expanding my skill set, I am actively learning advanced techniques relevant to data/financial analyst roles to enhance my ability to derive actionable insights.
-
-- 📫 How to reach me:
-
-  msdata2995@gmail.com
-  
-  www.linkedin.com/in/matthew-sanders-5541a2188
   
 - ⚡ Fun fact: Outside work, I'm at the tennis/pickleball courts enjoying the competition!
 
